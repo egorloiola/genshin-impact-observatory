@@ -1,1 +1,1 @@
-Pages - https://egorloiola.github.io/gio-full/
+Pages - https://egorloiola.github.io/genshin-impact-observatory/
